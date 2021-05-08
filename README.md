@@ -1,1 +1,1 @@
-Owner of https://bagikode.com
+Just normal manushifva
