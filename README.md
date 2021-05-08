@@ -1,1 +1,1 @@
-Just normal manushifva
+Just ordinary manushifva
