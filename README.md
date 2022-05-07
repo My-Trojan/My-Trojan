@@ -1,12 +1,12 @@
-Just ordinary an manushifva
+Web, game and mobile app developer with 6+ years experience.
 
-note: most of the repositories are private
+Connect with me via 
+- [E-mail](mailto:manu@sandbottle.net)
+- [Twitter](https://twitter.com/manushifva)
+- [Mastodon](https://mastodon.social/@manushifva)
+- [Website](https://manushifva.xyz)
+- Discord: manushifva#6541
 
-Connect with me via; 
-- [email](mailto:manu@sandbottle.net)
-- [twitter](https://twitter.com/manushifva)
-- [mastodon](https://mastodon.social/@manushifva)
+I have no other SNS. So if you find others with my name, i can sure they are fake.
 
-i have no other SNS. so if you find others with my name, i can sure they are fake.
-
-###### last updated: saturday, 15 jan 2022 GMT+7
+###### Last updated: Saturday, 7 May 2022 GMT+7
